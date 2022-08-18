@@ -1,1 +1,0 @@
-#ensinando anna luiza nub 
